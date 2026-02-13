@@ -11,8 +11,96 @@ Et j'espère que ce petit jeu va te faire plaisir ! :)
 Voici le premier élément de ton cadeau d'anniversaire ou la première étape !
 
 [Attention ceci est un virus !](https://parlonssciences.ca/ressources-pedagogiques/documents-dinformation/les-virus)
+<br>
+<br>
+[<small>Un lépreux qui jouait de la guitare</small>](https://www.facebook.com/cantiquelepreux/)
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
 
-[un lépreux qui jouait de la guitare](https://www.facebook.com/cantiquelepreux/)
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+
+
+
+
 
 
 
